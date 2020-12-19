@@ -1,1 +1,1 @@
-# ICE-CREAM-RECIPE-PROJECT-26
+I love eating ice-cream and did a project related to ice cream
